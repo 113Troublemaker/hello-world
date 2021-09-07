@@ -1,6 +1,5 @@
 # hello-world
 
-hello hello hello ahhhh
+hello I like pink and all the colours 
 
-nice to meet you ahhh
-i like black and white and pink and all the colours 
+I'm alien 
